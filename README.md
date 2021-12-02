@@ -1,0 +1,1 @@
+To understand something is to do something from scratch.
